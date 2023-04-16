@@ -1,1 +1,1 @@
-# vinspin.github.io
+# vinspin.github.io / vincespinelli.com
